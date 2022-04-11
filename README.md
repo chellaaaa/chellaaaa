@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **https://instagram.com/auelmaa?utm_medium=copy_link**
+- 📫 How to reach me **biolinky.co/marchell**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
